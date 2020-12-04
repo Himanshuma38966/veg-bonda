@@ -1,0 +1,1 @@
+Vegetable with fried coating
